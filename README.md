@@ -5,4 +5,4 @@
 - How to reach me -- 
 - Discord -- modularbhav
 - Linkedin -- https://www.linkedin.com/in/bhav-jain-9729212a7/
-- X (formerly twitter) -- https://x.com/bhav_jain07
+- X -- https://x.com/bhav_jain07
